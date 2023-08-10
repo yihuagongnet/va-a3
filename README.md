@@ -2,7 +2,8 @@
 
 https://avhd.in
 
-https://assets.neihanxinwen.com/images/banner/avhd3.png
+![image](https://github.com/yihuagongnet/va-a3/assets/141849781/028a2d12-1a8b-4677-ac1a-4197bcef32bf)
+
 
 # va-a3 AVHD 最新域名网址：
 
