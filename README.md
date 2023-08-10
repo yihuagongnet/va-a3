@@ -2,6 +2,8 @@
 
 https://avhd.in
 
+https://assets.neihanxinwen.com/images/banner/avhd3.png
+
 # va-a3 AVHD 最新域名网址：
 
 https://avhd.cfd
